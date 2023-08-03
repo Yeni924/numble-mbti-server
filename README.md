@@ -1,5 +1,8 @@
-회고 : 
-https://kwonyeeun.tistory.com/114
+## 📑 회고
+<div width="80%" align="center">
+ [ <img src="https://github.com/numble-mbti/.github/assets/79269207/27d65e03-ef9b-44f6-bde8-88cb86642dfa"> ](https://kwonyeeun.tistory.com/114)
+</div>
+
 
 <h1 align="center">당신이 지켜줘야할 소울메이트 동물은?🦆</h1>
 
