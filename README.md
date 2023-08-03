@@ -1,7 +1,5 @@
 ## 📑 회고
-<div width="80%" align="center">
-  - https://kwonyeeun.tistory.com/114
-</div>
+ - https://kwonyeeun.tistory.com/114
 
 
 <h1 align="center">당신이 지켜줘야할 소울메이트 동물은?🦆</h1>
